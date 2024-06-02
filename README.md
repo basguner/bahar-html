@@ -1,2 +1,3 @@
 !GIT-2
-BBBB
+BBBBKNJNJN
+MMÖÖÖÇŞ
